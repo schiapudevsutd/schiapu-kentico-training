@@ -1,0 +1,1 @@
+# schiapu-kentico-training
